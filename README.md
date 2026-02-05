@@ -5,5 +5,7 @@ mi kath
 im kath i like puppies n leafy n dandys world Im berry sociable n easy to talk to so interact <3
 
 other socials im MUCH more active on:
+
 tiktok:  @katherspng
+
 dc: sarahkthzx
