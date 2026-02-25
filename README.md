@@ -1,5 +1,4 @@
-<img width="500" height="338" alt="Untitled287_20251212000944" src="https://github.com/user-attachments/assets/c208eae7-1e45-4eda-b3d8-3c6f4aadb045" />  
-
+<img width="225" height="22" alt="Image" src="https://github.com/user-attachments/assets/610ec727-d855-44ee-abbd-5f82158d6a30" />
 
 haii ^_^ im kath i like puppies n leafy n dandys world Im berry sociable n easy to talk to so interact <3
 leafy n tenna fictionkin ok
@@ -8,8 +7,10 @@ i loav deltarune n osc (bfdi+lots) n so much stuff .... art by Diionysan
 
 @kathsboytoy is MY BITCH!!!! hi tom ily im gonna kill u in various ways. #tomkath5ever
 
-other socials im MUCH more active on:
+<img width="542" height="308" alt="image" src="https://github.com/user-attachments/assets/4a987025-ac3c-4bee-8dc6-6e73ae4e6d35" />
 
 tiktok:  @katherspng
 
 dc: sarahkthzx
+
+<img width="225" height="22" alt="Image" src="https://github.com/user-attachments/assets/610ec727-d855-44ee-abbd-5f82158d6a30" />
