@@ -3,7 +3,7 @@
 haii ^_^ im kath i like puppies n leafy n dandys world Im berry sociable n easy to talk to so interact <3
 leafy n tenna fictionkin ok
 
-i loav deltarune n osc (bfdi+lots) n so much stuff .... art by Diionysan
+i loav deltarune n osc (bfdi+lots) n so much stuff .... art by Diionysan ✎
 
 @kathsboytoy is MY BITCH!!!! hi tom ily im gonna kill u in various ways. #tomkath5ever
 
